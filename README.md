@@ -1,1 +1,1 @@
-# practical-pantry
+# practical-pantry-cooking
